@@ -1,1 +1,0 @@
-# Project-Properti-Terkendali
